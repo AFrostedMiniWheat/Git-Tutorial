@@ -1,1 +1,1 @@
-Dis the Tutorial Yo!
+Dis the Tutorial Yo! with friends :)
